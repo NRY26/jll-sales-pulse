@@ -1,1 +1,0 @@
-# jll-sales-pulse
